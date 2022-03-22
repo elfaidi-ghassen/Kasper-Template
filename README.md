@@ -1,1 +1,1 @@
-# [second-template](https://elfaidi-ghassen.github.io/second-template/)
+# [second-template](https://elfaidi-ghassen.github.io/Second-template/)
